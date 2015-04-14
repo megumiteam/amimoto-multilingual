@@ -74,7 +74,7 @@ Businesses, nonprofits, government agencies, academic institutions and clients o
 
 #####Contact AMIMOTO Support 
 
-Need help? Save time by starting your support request online and we'll connect you to an expert.
+Need help? Save time by starting your support request online and we'll connect you to an expert. 
 
 -----
 
