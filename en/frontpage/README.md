@@ -82,7 +82,7 @@ Need help? Save time by starting your support request online and we'll connect y
 
 -----
 
-Copyright © 2006-2015 DigitalCube Co. Ltd. All rights reserved.
+Copyright All rights reserved.
 
 Guide
 
