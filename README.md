@@ -6,3 +6,5 @@
 
 -----
 http://amimoto-ami.com/
+
+http://ja.amimoto-ami.com/
